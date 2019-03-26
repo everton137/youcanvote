@@ -6,7 +6,7 @@ EU citizens living in Germany can chose a Member of Parliament in the European e
 
 ### I am not German. Can I still vote in Germany? 
 
-**YES!** If you are an EU citizen and have lived in Germany for at least 3 months, *you can vote* in these elections. 
+**YES!** If you are an *EU citizen* and have lived in Germany for at least 3 months, *you can vote* in these elections. 
 As long as you have done your residence registration (Anmeldung), you have the right to vote.
 
 ## REGISTRATION CLOSES ON MAY 5!
