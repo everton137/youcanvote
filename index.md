@@ -25,10 +25,7 @@ Go to your district office (Bezirksamt) bring your ID and the completed applicat
 ## Can I also vote in my Embassy?
 
 You can only vote once. So you either vote in Germany or in your embassy. In Germany you vote for candidates
-representing and in the embassy for for people running in your home country. But you can only vote once!
-
-Do you still have questions? Write me at join@joannabronowicka.eu and I will do my best to answer your question 
-and put the answers here.
+representing and in the embassy for people running in your home country. But you can only vote once!
 
 Do you want to help? Spread this news with all your friends – a lot of EU citizens do not know that they have 
 the right to vote or that they need to register in person by May 5. Help us circulate this info!
