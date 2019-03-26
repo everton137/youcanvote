@@ -19,7 +19,7 @@ You have to go there in person with your ID and the completed application form .
 Download the application form [here](https://www.bundeswahlleiter.de/dam/jcr/d975b44c-d57d-439a-b290-7ff6b956ccb4/euwo_anlage-2a_ausfuellbar.pdf) - application for registration on a electoral roll (Antrag auf Eintragung in ein Wählerverzeichnis). 
 
 ### Step 2
-Go to your district office (Bezirksamt) bring your ID and the completed application form. That is it!
+Go to your district office (Bezirksamt) bringing your ID and the completed application form. That is it!
 
 
 ## Can I also vote in my Embassy?
