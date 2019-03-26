@@ -4,22 +4,22 @@
 
 EU citizens living in Germany can chose a Member of Parliament in the European elections on May 26, 2019. 
 
-### I am not German and can I still vote in Germany? 
+### I am not German. Can I still vote in Germany? 
 
-YES! If you are an EU citizen and have lived in Germany for at least 3 months, you can vote in these elections. 
+**YES!** If you are an EU citizen and have lived in Germany for at least 3 months, *you can vote* in these elections. 
 As long as you have done your residence registration (Anmeldung), you have the right to vote.
 
-## REGISTRATION CLOSES ON MAY 5
+## REGISTRATION CLOSES ON MAY 5!
 
 You just need to file an application form in your district office – for example, Bezirksamt Neukölln. 
 You have to go there in person with your ID and the completed application form .
 
 ###  Step 1
 
-Download the application form [here](https://www.bundeswahlleiter.de/dam/jcr/d975b44c-d57d-439a-b290-7ff6b956ccb4/euwo_anlage-2a_ausfuellbar.pdf). 
+Download the application form [here](https://www.bundeswahlleiter.de/dam/jcr/d975b44c-d57d-439a-b290-7ff6b956ccb4/euwo_anlage-2a_ausfuellbar.pdf) - application for registration on a electoral roll (Antrag auf Eintragung in ein Wählerverzeichnis). 
 
 ### Step 2
-Go to your district office (Bezirksamt) bring your ID and the completed application t form. That is it!
+Go to your district office (Bezirksamt) bring your ID and the completed application form. That is it!
 
 
 ## Can I also vote in my Embassy?
