@@ -12,7 +12,7 @@ As long as you have done your residence registration (Anmeldung), you have the r
 ## REGISTRATION CLOSES ON MAY 5!
 
 You just need to file an application form in your district office – for example, Bezirksamt Neukölln. 
-You have to go there in person with your ID and the completed application form .
+You have to go there in person with your ID and the completed application form.
 
 ###  Step 1
 
