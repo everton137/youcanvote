@@ -16,7 +16,7 @@ You have to go there in person with your ID and the completed application form.
 
 ###  Step 1
 
-Download the application form [here](https://www.bundeswahlleiter.de/dam/jcr/d975b44c-d57d-439a-b290-7ff6b956ccb4/euwo_anlage-2a_ausfuellbar.pdf) - application for registration on a electoral roll (Antrag auf Eintragung in ein Wählerverzeichnis). 
+Download the application form for registration on a electoral roll [here](https://www.bundeswahlleiter.de/dam/jcr/d975b44c-d57d-439a-b290-7ff6b956ccb4/euwo_anlage-2a_ausfuellbar.pdf) (form in [English](https://www.joannabronowicka.eu/s/Guide_English_07042019.docx) and [Spanish](https://www.joannabronowicka.eu/s/Guide_ES_07042019.docx)) - *Antrag auf Eintragung in ein Wählerverzeichnis*. 
 
 ### Step 2
 Go to your district office (Bezirksamt) bringing your ID and the completed application form. That is it!
